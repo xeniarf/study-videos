@@ -1,13 +1,13 @@
 # study-videos
 
 
-https://github.com/user-attachments/assets/6b9e3497-1025-4721-9891-18bf948a4a4b
+https://github.com/user-attachments/assets/bb5325f5-45f1-470e-9c48-e50da74cbcf3
 
 
 
-https://github.com/user-attachments/assets/cf10228b-e8cf-4545-ad59-1d5cf604f6a4
+https://github.com/user-attachments/assets/240e7252-14fd-4e37-9bf3-3b85f4787d2a
 
 
 
-https://github.com/user-attachments/assets/42255795-0b07-43d4-b349-5ccb93c6b2e3
+https://github.com/user-attachments/assets/9a344101-1eda-4fe8-ae64-20e39e69e1e8
 
